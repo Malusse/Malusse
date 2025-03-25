@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Malusse
+- 👋 Hi, I’m @Hira00
 - 👀 I’m interested in OP 1 by teenage engineering and ios audio features 
 - 🌱 I’m currently learning nothing except digital music production 
 - 💞️ I’m looking to collaborate 
